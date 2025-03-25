@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm **Jazeel Jabbar**, an entrepreneur and tech innovator passionate about building AI-driven solutions that make a real impact. Currently, I’m working on **HopeLog** , an empathetic AI journaling tool designed to support people dealing with depression and anxiety. My goal is to create a virtual companion that helps users navigate their mental health journey while maintaining privacy and trust.
+
+In the past, I founded Camel Central, an online art and craft education platform, and True Eyes, an interactive advertising technology company. I’ve also won multiple awards, including the UAE Web Awards and Pan Arab Awards, and have been part of startup programs like Founder Institute and ISLabs.
+
+Now, I’m focused on growing HopeLog into a global mental wellness platform while sharing my entrepreneurial journey on Substack and Medium. I believe in building products that genuinely help people, and I’m excited about what’s ahead. 🚀
